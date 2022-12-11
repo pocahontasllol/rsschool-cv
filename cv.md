@@ -11,8 +11,8 @@
 
 **Email** pocahontasllol@gmail.com
 **Number** +79507488229
-
-#### Career Objective: 
+**Tg** @bogeotpusti
+ #### Career Objective: 
 
  I want to be a part of a commercial development team engaged in projects aimed at improving the interaction between business and consumer.
 
